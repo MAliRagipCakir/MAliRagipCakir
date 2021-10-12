@@ -2,7 +2,7 @@
 
 <!--
 -->
-![](https://thumbs.gfycat.com/AmbitiousElaborateDromedary-max-1mb.gif)
+![]()
 
 
 - 🔭 I’m currently working on ...
